@@ -1,1 +1,1 @@
-she is female
+she is a girl
